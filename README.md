@@ -7,7 +7,7 @@
 
 multifandom ! 🍰 
 
-the amazing digital circus, hermitcraft, life series, homestuck, cookie run (ovenbreak), danganronpa, undertale/deltarune, the owl house
+the amazing digital circus, hermitcraft, life series, homestuck, cookie run (ovenbreak), danganronpa, undertale/deltarune, the owl house, smiling friends
 
 common fronters ! 🧁
 
