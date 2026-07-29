@@ -5,12 +5,12 @@
 [j + b = <3 5/31/25](https://open.spotify.com/track/6Hdc3IQeyCxG5d14uAcwQW?si=ZQx99YfjRUuEiDhKEy-fdg&utm_source=copy-link)
 
 
-multifandom ! 🍰
+$\color{#fbb3e8}\textsf{multifandom ! 🍰}$
 
 the amazing digital circus, hermitcraft, life series, homestuck, cookie run (ovenbreak), danganronpa, undertale/deltarune, the owl house, smiling friends, south park 
 
 
-common fronters ! 🧁
+$\color{#93e1ed}\textsf{common fronters ! 🧁}$ 
 
 💌 = beatrice, she/they, multifictive host, controls most of the accounts (including this one obvi), femme lesbian swiftie takeover! known for being a pop music lover and pink maniac 
 
