@@ -4,6 +4,8 @@
 
 [j + b = <3 5/31/25](https://open.spotify.com/track/6Hdc3IQeyCxG5d14uAcwQW?si=ZQx99YfjRUuEiDhKEy-fdg&utm_source=copy-link)
 
+![](https://komarev.com/ghpvc/?username=sweetvalentinescandy&color=ffaed5&label=profile+views)
+
 
 $\color{#fbb3e8}\textsf{multifandom ! 🍰}$
 
@@ -54,18 +56,6 @@ $\color{#93e1ed}\textsf{common fronters ! 🧁}$
 
 <details>
 <summary> . <3 </summary>
- <img width="150" height="20" alt="x6" src="https://github.com/user-attachments/assets/ad139fbe-4a85-4cb0-ada4-beedcc993a32" /><img width="150" height="20" alt="tumblr_p99cgz8nVM1x5gwxfo1_250" src="https://github.com/user-attachments/assets/94ba673b-02e3-4639-b2af-4676934f9e8f" /><img width="150" height="20" alt="tumblr_e14e4973f73ea18b2a560548b06c4325_3c50a5b4_1280" src="https://github.com/user-attachments/assets/c64af70a-adb6-4646-9e2c-1a638f946acf" /><img width="150" height="20" alt="z42" src="https://github.com/user-attachments/assets/5384d2e1-c5de-4a98-b303-fdbb414a1a65" /><img width="150" height="20" alt="x4" src="https://github.com/user-attachments/assets/30a7e77b-8f4f-49ff-9836-907cb515b8a1" /><img width="150" height="20" alt="e119" src="https://github.com/user-attachments/assets/5cf3440a-8cf4-4877-983d-a2222f24bbeb" /><img width="150" height="20" alt="d73" src="https://github.com/user-attachments/assets/b1f1167a-fd0b-4ec8-990b-be4ca42c3c27" /><img width="150" height="20" alt="d74" src="https://github.com/user-attachments/assets/1cc4729a-ae21-4ece-b6da-cab03e036d18" /><img width="150" height="20" alt="e117" src="https://github.com/user-attachments/assets/5cf48fd8-72c8-4d82-bb44-8c7549f75dfe" /><img width="150" height="20" alt="v80" src="https://github.com/user-attachments/assets/6ee06cb1-15bc-4776-ac71-2958083e3738" /><img width="150" height="20" alt="bitchpiss" src="https://github.com/user-attachments/assets/46325577-0b3b-4833-ac55-562dd40bf96c" /><img width="150" height="20" alt="theysmokeweed" src="https://github.com/user-attachments/assets/daffd7c3-3ca2-4ecf-a055-5edb8c2fc327" /><img width="150" height="20" alt="tumblr_f8a33a70c57ef1656dba55ba5b759d11_9865fed0_250" src="https://github.com/user-attachments/assets/7d88b7a5-c830-48c2-96ec-4757e39dc0b4" /><img width="150" height="20" alt="blinkiesbrain" src="https://github.com/user-attachments/assets/41bddfab-eb8c-4cd6-9f05-915a139bc787" />
+ <img width="150" height="20" alt="x6" src="https://github.com/user-attachments/assets/ad139fbe-4a85-4cb0-ada4-beedcc993a32" /><img width="150" height="20" alt="tumblr_p99cgz8nVM1x5gwxfo1_250" src="https://github.com/user-attachments/assets/94ba673b-02e3-4639-b2af-4676934f9e8f" /><img width="150" height="20" alt="tumblr_e14e4973f73ea18b2a560548b06c4325_3c50a5b4_1280" src="https://github.com/user-attachments/assets/c64af70a-adb6-4646-9e2c-1a638f946acf" /><img width="150" height="20" alt="z42" src="https://github.com/user-attachments/assets/5384d2e1-c5de-4a98-b303-fdbb414a1a65" /><img width="150" height="20" alt="x4" src="https://github.com/user-attachments/assets/30a7e77b-8f4f-49ff-9836-907cb515b8a1" /><img width="150" height="20" alt="e119" src="https://github.com/user-attachments/assets/5cf3440a-8cf4-4877-983d-a2222f24bbeb" /><img width="150" height="20" alt="d73" src="https://github.com/user-attachments/assets/b1f1167a-fd0b-4ec8-990b-be4ca42c3c27" /><img width="150" height="20" alt="d74" src="https://github.com/user-attachments/assets/1cc4729a-ae21-4ece-b6da-cab03e036d18" /><img width="150" height="20" alt="e117" src="https://github.com/user-attachments/assets/5cf48fd8-72c8-4d82-bb44-8c7549f75dfe" /><img width="150" height="20" alt="v80" src="https://github.com/user-attachments/assets/6ee06cb1-15bc-4776-ac71-2958083e3738" /><img width="150" height="20" alt="bitchpiss" src="https://github.com/user-attachments/assets/46325577-0b3b-4833-ac55-562dd40bf96c" /><img width="150" height="20" alt="theysmokeweed" src="https://github.com/user-attachments/assets/daffd7c3-3ca2-4ecf-a055-5edb8c2fc327" /><img width="150" height="20" alt="tumblr_f8a33a70c57ef1656dba55ba5b759d11_9865fed0_250" src="https://github.com/user-attachments/assets/7d88b7a5-c830-48c2-96ec-4757e39dc0b4" /><img width="150" height="20" alt="blinkiesbrain" src="https://github.com/user-attachments/assets/41bddfab-eb8c-4cd6-9f05-915a139bc787" /> 
 
 
-
-
-
-
-
-
-
-
-
-
-</details>
-</details>
